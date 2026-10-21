@@ -1,2 +1,2 @@
 # BongoOG
-It's actually BongoOG
+I dunno what's suppose to go there lol
